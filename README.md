@@ -1,3 +1,5 @@
+# [![Siddhant's Header](https://i.imgur.com/CjQI99G.png)](https://linkedin.com/in/siddhantbansal)
+
 ### Hi there 👋
 
 <!--
